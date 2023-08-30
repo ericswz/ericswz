@@ -7,4 +7,4 @@ Meu nome é Eric Loureiro
 
 📫eric.loureiro@escola.pr.gov.br
 
-![](https://media.tenor.com/LsYPAE9JiP8AAAAd/rolando-ronaldo.gif)
+![](https://media.tenor.com/tSNAGNZMbqwAAAAi/meme-memes2022funny.gif)
